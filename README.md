@@ -4,7 +4,7 @@
 - 💞️ I’m looking to collaborate on ... My Lifes Work.
 - 📫 How to reach me ... On my Bleep.
 - 😄 Pronouns: ... Me,Me & Me.
-- ⚡ Fun fact: ... Traveling is Fun.
+- ⚡ Fun fact: ... Traveling is Fun. Hit Me Up!
 
 <!---
 EspadaGruntty/EspadaGruntty is a ✨ special ✨ repository because its `README.md` (this file) appears on your GitHub profile.
